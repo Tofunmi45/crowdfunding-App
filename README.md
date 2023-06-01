@@ -34,8 +34,6 @@ This will give the payment to the recpient for the proposal.
 Hi there 👋
 You Can use this Beautiful Project for your college Project and get good marks too.
 
-Email me Now vatshayan007@gmail.com to get this Full Project Code, PPT, Report, Synopsis, Video Presentation and Research paper of this Project.
-
 Need Code, Documents & Explanation video ?
 How to Reach me :
 Mail : folashele006@gmail.com
